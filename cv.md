@@ -1,0 +1,16 @@
+# Ivan Fedorov
+----------------
+### Contact information
+- email: **wollos@mail.ru**
+
+### About myself
+My aim is to become a specialist in **iOS and MacOS SW development**
+
+##### Softskills
+1. Fast learner
+
+### Education / training courses
+1. Linguistics University 
+
+### English language
+Proficiency level - **C1**
